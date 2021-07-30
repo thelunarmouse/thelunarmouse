@@ -1,5 +1,9 @@
 ### Hi there 👋
 
+My name is Amber Curtis - also known as @thelunarmouse on instagram, youtube, twitter and across most of the internet XD.
+
+I love to learn, and I even have a website where I document what I am currently learning, so you can join me on my journey! Check out www.thelunarmouse.co.uk to find out more!
+
 <!--
 **thelunarmouse/thelunarmouse** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
